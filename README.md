@@ -1,7 +1,5 @@
 ### Hi, I am Hlib Babii
 
-🎓 PhD Student @ Free University of Bozen-Bolzano, Italy
-
 
 
 ---
